@@ -17,4 +17,4 @@ Garantimos que nossa página é totalmente otimizada para proporcionar o menor t
 
 ## Caso esteja interessado nesta ou em uma página exclusiva para sua empresa, contate:
 
-- Telegram: [@murilosav](https://t.me/gawjloart)
+- Telegram: [@gawjloart](https://t.me/gawjloart)
